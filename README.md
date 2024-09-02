@@ -1,4 +1,4 @@
-### Hi there 👋 i'm a ghost and this is a work in progress 
+### Hi there 👋 I'm a ghost and this is a work in progress 
  
 
 
